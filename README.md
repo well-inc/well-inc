@@ -17,5 +17,6 @@ Well Incorporated
 
 Связаться с нами, задать вопрос, предложить помощь:
 well.incorporated.505@gmail.com
+
 Наш телеграмм канал:
 https://t.me/wellincgame
